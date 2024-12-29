@@ -235,6 +235,8 @@ No need to mention the author.
 ## Mockup
 
 - [Mockup World](https://www.mockupworld.co/) handpicks and presents the best photorealistic Photoshop mockups that designers and agencies worldwide have published online.
+- [Freebies Mockup](https://www.freebiesmockup.com/) — Download free popular graphic offered by Freebies Mockup can be used for personal and commercial purposes so you can include it in your clients' presentations.
+- [Photoshop PSD Mockups](https://www.photoshopvideotutorial.com/) — Using a freebies Photoshop PSD mockups is a great way to showcase your design in a professional and realistic way. It is also a great way to save money.
 - [Placeit](https://placeit.net/) marry design and technology to create high-quality branding and marketing tools so anyone from individuals to large companies can create amazing visual assets for their brand regardless of technical or artistic skills.
 - [Epicpxls](https://www.epicpxls.com/) Free & premium curated fonts, graphics, templates, mobile app designs & UI Kits.
 - [360 Mockups](https://360mockups.com/) Totally FREE to download PSD Mockups to present your works.
